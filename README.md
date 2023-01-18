@@ -1,1 +1,1 @@
-# jaunas-kalkul-tors-zir-i-
+# jaunas-kalkulators-zirni  
